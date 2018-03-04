@@ -1,3 +1,0 @@
-## JELENIZACE
-
-Všechny Vás ovládnu !!!
